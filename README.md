@@ -1,4 +1,3 @@
-Coded By Mr DeNsor @6gr8
-
-
-Telegram - DENS0R , RRRBG
+• Phonk Producer & Editor - AE - VS
+• Developer - Csharp - Py - C++ - C - More ..
+• Obsessed With Reverse Engineering 💻
